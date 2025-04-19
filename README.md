@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Who tf im
 🎓 MSc in Computer Science (yes, I survived)<br>✨ UI/UX Designer who touches Figma more than code Not a hardcore coder—more like “can read code, won’t write unless I’m forced.” Obsessed with making things look good and actually make sense. If it’s ugly, I’ll fix it. If it’s broken, I’ll vibe with it until it works.
 
 
